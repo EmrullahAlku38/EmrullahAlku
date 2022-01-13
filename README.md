@@ -1,1 +1,0 @@
-# EmrullahAlku.github.io
